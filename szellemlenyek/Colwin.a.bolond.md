@@ -20,13 +20,11 @@ A negyedik napon uram már agonizált, pedig mindent megpróbáltunk. Még javas
 
 Mint látható Colwin egy igen rosszindulatú, intelligens szellemlény, ki gyűlöl mindenkit e világon, még saját magát is.
 
-Képes megszállni valakit és úgy kínozni. Lassan átveszi áldozata fölött az uralmat. Ez általaban az egyre gyakoribba válló kacajok, vihogások formájában nyilvánul meg. Az elme teljesen elborul, s ezt a test sínyli meg. Egyfajta felsőbb késztetés ez. A szilánkokra hasadó személyiség
-
-aláássa a test harmóniáját is. Colwin - ki az évszázadok során már szinte mindent elvesztett emberiességéből - már csak a gyönyörnek "él", amit agonizáló áldozatai szenvedése közben érez. Sajnos ennek ellenére félelmetes az intelligenciája. Nem valószínű, hogy valaha is itthagyhatja az árnyékvilágot....
+Képes megszállni valakit és úgy kínozni. Lassan átveszi áldozata fölött az uralmat. Ez általaban az egyre gyakoribba válló kacajok, vihogások formájában nyilvánul meg. Az elme teljesen elborul, s ezt a test sínyli meg. Egyfajta felsőbb késztetés ez. A szilánkokra hasadó személyiség aláássa a test harmóniáját is. Colwin - ki az évszázadok során már szinte mindent elvesztett emberiességéből - már csak a gyönyörnek "él", amit agonizáló áldozatai szenvedése közben érez. Sajnos ennek ellenére félelmetes az intelligenciája. Nem valószínű, hogy valaha is itthagyhatja az árnyékvilágot....
 
 ---
 
-ℹ️ 6. osztályú szellemlény (Aura:60%)
+👻 6. osztályú szellemlény (Aura:60%)
 
 Szellemképességek:
 - Megszállás  
