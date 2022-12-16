@@ -8,7 +8,7 @@ Anyagok Codex szerepjátékhoz.
 
 ## Szellemlények
 
-- Colwin a bolond
+- [Colwin a bolond](szellemleny/Colwin.a.bolond.md)
 
 ## Kalandmodulok
 
