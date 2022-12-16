@@ -4,7 +4,7 @@ Anyagok Codex szerepjátékhoz.
 
 ## Novellák
 
-- A jövő
+- [A jövő](novella/A.jovo.md)
 
 ## Szellemlények
 
