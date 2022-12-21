@@ -6,6 +6,7 @@ Anyagok Codex szerepjátékhoz.
 
 - [A jövő](novella/A.jovo.es.Lelekmagia.md)
 - [A varázsló és a szellem](novella/A.varazslo.es.a.szellem.md)
+- [Belső erős gonoszkodások 1.](novella/belso.eros.gonoszkodasok.1.md)
 
 ## Szellemlények
 
