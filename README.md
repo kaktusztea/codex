@@ -1,6 +1,6 @@
 # Codex
 
-Anyagok Codex szerepjátékhoz.
+Anyagaim Codex szerepjátékhoz.
 
 ## Novellák
 
