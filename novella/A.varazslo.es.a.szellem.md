@@ -14,7 +14,7 @@ Érezte maga körül a manát. Mindenütt. Belemarkolt, összesűrített
 
 Egyszeriben hatalmas szél csapott be az ablakon és körbeörvénylett a szobában, végül Dolm hajába csimpaszkodott és teljesen összekuszálta, miközben magas, vidám, vásott nevetés (visítás) hallatszott:
 
-\- "Nnnnyiiiiiiiiiiiiiiiiiihihihihihihihihi...."
+– "Nnnnyiiiiiiiiiiiiiiiiiihihihihihihihihi...."
 
 Dolm üdvözölte a szellemet. <Kedves mosoly érzete, régi ismerős>
 
@@ -26,7 +26,7 @@ Dolm üdvözölte a szellemet. <Kedves mosoly érzete, régi ismerős>
 
 Dolm ismét szavalni kezdett, előhívta az érzetet és a szellemre koncentrált. Nyakéknek látta most, varázslatát pedig ékkőnek, amit belehelyez. Kész volt. A szellem Auráján Dolm Aurájának világoskék árnyalatai fodrozódtak.
 
-\- Most menj. <A gazda leoldozza a nyakörvet a kutya nyakáról, intés, mehetsz>
+– Most menj. <A gazda leoldozza a nyakörvet a kutya nyakáról, intés, mehetsz>
 
 A szél kiszáguldott az ablakon.
 

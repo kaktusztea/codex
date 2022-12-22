@@ -1,0 +1,36 @@
+## Fogadó a táposakhoz
+
+Pellanor Sygas nekidőlt a korlátnak és elmerengett. Szerette ezt a fogadót. Immár ötödik éve, hogy húgával - Soi-al - belevágtak az üzletbe. Mindössze 27 éves volt most, de nem panaszkodhatott, boldog volt. Apja - tiszt volt a városi katonaságnál - katonának akarta adni őt is, és nemigen törődött bele, hogy fia nem erre termett.
+
+Pellanor szerette az embereket. Egyszerűen szerette őket. Szeretett örömet okozni, társaságban lenni, történeteket hallgatni, esetleg mesélni. Apja 20 éves korában meghalt és nem akadályozhatta tovább boldogulásában. Soinak sem volt kedve egy kövér gazdag kereskedő oldalán megöregedni, így ketten együtt valósították meg Pellanor régi álmát, a fogadót. Soi valaha szép volt, de most sokan elborzadtak tőle az arcán éktelenkedő forradások miatt. Egy visszautasított udvarlója hasított végig rajta egy tűhegyes tőrkarommal. A lány azért megőrizte jókedvét, bár udvarlókban nemigen bővelkedhetett. Pellanor mindig azzal bíztatja, hogy egyszer majd világhírű gyógyító érkezik a városba, aki eltünteti majd a heget.
+
+A fogadó - A Gálya - valóban különleges volt. Nevét furcsa elhelyezkedésének köszönhette. Egy kb. 200 lépés átmérőjű, 5 alak mély apró "völgyben" ill. völgyön helyezkedett el. Ugyanis a fogadó hosszú - 5 alak magas - tartógerendákon állt és így úgy tűnhetett, hogy az épület ellentmondva a természet törvényeinek a völgy tetejével egy szintben - akár egy hajó - lebeg. Két emelete és hosszú sétálóhídjai voltak, amelyek koncentrikusan vették körül a fogadót (természetesen szintén tartógerendákon állva). A hidakról a szemlélődő alátekinthetett a "völgyben" elterülő lugasra, ami valójában a fogadó "kertje" volt. Keskeny csigalépcsőkön ereszkedhetett alá a vendég és kevesen voltak, akik elmarasztalólag nyilatkoztak volna a látványról.
+
+Gyönyörű virágok, egy kisebb szőlőlugas, két szökőkút (egy vagyont költöttek rá) számos szobor és bokorcsoport nyűgözte le az ide látogatót, a dús lombú fák árnyékában pedig bárki elüldögélhetett egyedül, ha nyugalomra vágyott. Nem kis fáradságba került így elrendezni a kertet. Pellanor, Soi és a fogadó többi embere hónapokig ástak, ültettek és alkudoztak a kőfaragókkal, míg minden a helyére került. Meglett viszont az eredménye. Egész Tÿsisben elismerően bólintottak mindenhol, ha erről a helyről esett szó, bár nem tartozott a legolcsóbbak közé, még a fővároshoz, Sÿtis-hez viszonyítva sem.
+
+Belül is mindent megtettek, hogy ne legyen a vendégnek panasza. A főteremben - ahol a legtöbb vígasság folyt - tucatnyi mesterien faragott asztal, szék állt - mindig tisztán - és drága füstölők ontották bódító illatukat. A falat sok helyütt díszes faragványokkal borítottak. Itt volt Pellanor kedvence is: egy fából faragott tekergőző sárkány - közvetlenül egy szinte tökéletesen foncsorozott sÿtisi tükör mellett. Külön kis színpad állt a faragványokkal díszített fal mellett, ahol néha egy-egy dalnok, helyi "zenekar" muzsikált, énekelt, sőt ha elég magasra csapott a jókedv néhány helybeli is előadta néha kedvenc nótáját alkoholközi állapotban. Csendesebb vigasságoknál pedig mindig volt valaki, aki igazi, vagy kitalált történettel szórakoztatta a jelenlevőket.
+
+Néha verekedés is megesett, de "Kóma" Brakh - a kidobó - általában ura volt a helyzetnek. Tizenkét évig szolgált a városi őrségnél és jó pár kemény helyzetben részt vett (ha nem is mindig mint győztes fél).
+
+Díszes csillárok lógtak a mennyezeten, persze nem a legdrágább fajtából, mert egy verekedésnél néha komoly igénybevételnek voltak kitéve. Kedélyes kandallók ontották a meleget, ha beköszöntött a tél és a fázós vendég hamar kaphatott egy kancsóval a Gálya híres mézes lélekmelengetőjéből. A két emeleten kényelmes szobák fogadták a pihenni vágyókat és ha igénye volt rá, fertályóránál rövidebb idő alatt már ott is gőzölgött a forró fürdő. Persze Pellanornak is voltak haragosai, (egyszer már majdnem ki is gyulladt a fogadó) de nem zavartatta magát. Egyszerűen nem törődött velük.
+
+A "Völgy" szélén levő főajtó csapódása riasztotta fel elmélkedéséből. Ilyenkor - délelőtt - nem igazán volt vendég, de mindig volt valaki, aki betért egy italra.
+
+– *"Az is lehet, hogy Soi jött vissza a városból."* - gondolta és visszaballagott a fogadóba. Az érkezőnek még végig kellett haladnia a fogadót a "szárazfölddel" összekötő hídon, így Pellanornak volt ideje, hogy őt megelőzve jusson a főterembe. Amint beért, máris nyílt az ajtó és belépett valaki. Pellanor üdvözölte, de hirtelen elakadt a szava. Az idegenen volt valami elképzelhetetlenül riasztó. Először nem tudta, hogy mi az de hirtelen ráeszmélt: Az idegennek nem volt arca! Volt szeme, füle, orra, szája, de egyszerűen nem voltak saját vonásai. Öltözete is elmosódottan látszott csak. Csizma, nadrág, mellény, kard. Többet nem lehetett megállapítani. Akár egy utasításoknak engedelmeskedő élőhalott úgy ment a fogadós elébe. Nem nézett körül, egyszerűen csak odament. Pellanor furcsán érezte, magát: mintha a faragványok a falon elhalványultak volna?
+
+– *"Biztos csak képzelődöm."* - gondolta, majd hangosan folytatta: 
+– *"Öö.. Mit parancsol uram?"*  
+– *"Szoba és étel van?"* - a hang hallatszott ugyan, de egyszerűen nem volt saját tónusa, jellegzetessége, még csak monotonnak sem lehetett mondani. Egyszerűen nem volt semmilyen.  – *"V..van."* - mondta Pellanor és most mar tényleg kezdte kényelmetlenül érezni magát. Mintha homály ereszkedett volna a teremre. A szép, tiszta asztalok, durvábbnak, mocskosnak tűntek, a füstölők szaga már alig érződött.
+– *"E..elnézést uram, de milyen névre írhatom a szobát?"*
+
+– *"Hát, ööö... hm.. Graxil Morkax"* - válaszolt sehogyan az idegen.  
+– *"Milyen név ez? Mintha most találta volna ki?"* - gondolta Pellanor.
+– "És.. hát.. honnan származik, uram?" - próbálta oldani a hangulatot.  
+– *"Én?... Hát.... Sÿstisből, valami kisvárosból. Na kaphatok enni?"* 
+
+Pellanor egyre rosszabbul lett. A falakról egészen eltűntek a faragások, a gyönyörű kandallók kontármunkává alacsonyodtak, az asztalok székek gyalulatlan, ócska bútordarabok voltak csupán. A kertből már nem hallatszott az eddigi madárének és olyan sötét lett, mintha odakinn leszállt volna az éj. Belenézett a falon levő - már alig látható - tükörbe és majdnem összeesett. Negyven-ötven év körüli kopaszodó, mogorva alak bámult rá vissza hatalmas hassal.
+
+– *"Na! Mi lesz a kajával?"* - hallatszott.  
+És ekkor, mintha valami felsőbb tudat jelent volna meg Pellanor agyában, hirtelen felfogta, hogy ez az alak NEM LÉTEZIK és ezzel a tagadással őt is megsemmisíti és átalakítja valami borzalmas, szintén semmilyen valamivé. Pellanor sikoltva rohant ki a sablon-éjszakába.
+
+Vége
