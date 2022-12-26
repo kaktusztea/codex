@@ -9,6 +9,7 @@ Anyagaim Codex szerepjátékhoz.
 - [Belső erős gonoszkodások 1.](novella/belso.eros.gonoszkodasok.1.md)
 - [Belső erős gonoszkodások 2.](novella/belso.eros.gonoszkodasok.2.md)
 - [Fogadó a táposakhoz](novella/Fogado.a.taposakhoz.md)
+- [Maga a rettenet](novella/Maga.a.rettenet.md)
 - [Tanító szellem](novella/Tanito.szellem.md)
 
 ## Szellemlények
