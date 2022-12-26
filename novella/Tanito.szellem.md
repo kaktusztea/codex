@@ -15,7 +15,7 @@ Koncentráltam, és belekezdtem a légzőgyakorlatba. Hajlongtam, szívtam 
 
 *"Jól van."* – mondta. A leányról nem szólt semmit. – *"Gyere hát velem. Új dolgot tanulsz."*
 
-Sokáig barangoltunk. Néha szellő suhogtatta köpenyünket. Mesterem igen derűs volt ma. Mérges lettem, hogy még mindig rajtam mulat, de később rájöttem, más volt az oka. Meglepődve tapasztaltam, hogy lefele – a falu felé – tartunk. Több órás fárasztó ereszkedés után meg is érkeztünk a völgyben fekvő kicsiny – ám igen zajos – faluba. Nem sokszor jártam itt. Tanítóm a piactér felé tartott. Ekkor már teljesen összezavarodtam. Egyrészt, hogy mit akarhat, másrészt, a sürgő-forgó, kiabáló embertömegtől, a színes kavalkádtól. A nap delelőn állt. Egyszerre lecövekeltünk a piactér közepén. Mesterem rám nézett jókedvűen és azt mondta: *"Rajta. Csináld!"*
+Sokáig barangoltunk. Néha szellő suhogtatta köpenyünket. Mesterem igen derűs volt ma. Mérges lettem, hogy még mindig rajtam mulat, de később rájöttem, más volt az oka. Meglepődve tapasztaltam, hogy lefele – a falu felé – tartunk. Több órás fárasztó ereszkedés után meg is érkeztünk a völgyben fekvő kicsiny – ám igen zajos – faluba. Nem sokszor jártam itt. Tanítóm a piactér felé tartott. Ekkor már teljesen összezavarodtam. Egyrészt, hogy mit akarhat, másrészt, a sürgő-forgó, kiabáló embertömegtől, a színes kavalkádtól. A nap delelőn állt. Egyszerre lecövekeltünk a piactér közepén. Mesterem rám nézett jókedvűen és azt mondta: *"Rajta. Csináld!"*\
 – *"Mit, mester?"*\
 – *"Használd az erődet."*
 
