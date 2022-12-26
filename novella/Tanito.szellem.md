@@ -28,4 +28,4 @@ Amit átsugárzott belém – miközben körüllebegett – az a friss fu�
 
 Beszélgettünk még egy ideig, aztán pirkadatkor megérkeztünk a kolostorba. Gongszó szállt a levegőben, a hatalmas kapu kitárult és én végre aludni térhettem.
 
-Ailtas
+(Ailtas)
