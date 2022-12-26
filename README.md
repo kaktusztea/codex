@@ -18,6 +18,7 @@ Anyagaim Codex szerepjátékhoz.
 
 ## Rendek, ismertetők
 - [Északi rokonság - három nador karakter bemutatása](rendek.ismertetok/Eszaki.rokonsag.md)
+- [Gonoszok rendje](rendek.ismertetok/Gonoszok.rendje.md)
 
 ## Kalandmodulok
 
