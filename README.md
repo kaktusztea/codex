@@ -1,6 +1,6 @@
 # Codex
 
-Anyagaim Codex szerepjátékhoz.
+Anyagaim Codex szerepjátékhoz - Ailtas
 
 ## Novellák
 
