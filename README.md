@@ -17,10 +17,11 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Colwin a bolond](szellemleny/Colwin.a.bolond.md)
 
 ## Rendek, ismertetők
-- [Északi rokonság - három nador karakter bemutatása](rendek.ismertetok/Eszaki.rokonsag.md)
-- [Gonoszok rendje](rendek.ismertetok/Gonoszok.rendje.md)
+- [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása
+- [Gonoszok rendje](rendek.ismertetok/Gonoszok.rendje.md) – nem az, amire gondolnál
+- [Hideas ház](rendek.ismertetok/Hideas.haz.md) – titkos rend Sÿstisben, furcsa titokkal
 
 ## Kalandmodulok
 
 - Vissza – Codex modul (1999)  – ... coming soon ...
-  - [Kronikak.hu ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/) – köszönet érte 🙂
+  - [Kronikak.hu kaland-ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/) – köszönet érte 🙂
