@@ -4,7 +4,7 @@ Valahol Sÿtis-ben egy bál esti forgatagában
 
 Kilhors száját elhúzva tekintett szét az estély forgatagában. Nagyon unta magát. Azt a legutóbbi érdekes esetet leszámítva (mikor egy igen vonzó fiatal hölgy egy szemtelen csók után máris szobájába rángatta az őt megszégyenítő férfit) nem történt semmi.
 
-Miután a különös pár felbukdácsolt a lépcsőn, Kilhors felöltötte legbehízelgőbb modorát és megpróbált szintén szóba elegyedni az **Iraquar** Házból származó, meglehetősen jómódú hölgyeménnyel, aki legalább oly formás volt, mint amilyen gazdag. Próbálkozását csúfos kudarc koronázta, selyemingén ma határozottan előnytelenül és divatjamúltan tekergőzött a rálocsolt bor bíbor foltja. És mit kellett látnia?!
+Miután a különös pár felbukdácsolt a lépcsőn, Kilhors felöltötte legbehízelgőbb modorát és megpróbált szintén szóba elegyedni az **Iraquar** Házból származó, meglehetősen jómódú hölgyeménnyel, aki legalább oly formás volt, mint amilyen gazdag. Próbálkozását csúfos kudarc koronázta, selyemingén **ma** határozottan előnytelenül és divatjamúltan tekergőzött a rálocsolt bor bíbor foltja. És mit kellett látnia?!
 
 Az a tenyérbemászó Amorian, az **Atavis** házból! Máris kivetette hálóját a hölgyre. Dühének váratlan megvilágosodása vetett véget és halk gonosz nevetést (inkább hörrenést – A hű krónikás megjegyzése) hallatott. Nem volt hiába a tanulás! Igaz, ki nem állhatta azt a szentfazekat, aki egy héten kétszer látogatást tett náluk és a mágia alapjaira oktatta (immár ötödik éve).
 
