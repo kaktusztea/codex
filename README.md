@@ -22,4 +22,5 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 
 ## Kalandmodulok
 
-- Vissza
+- Vissza – Codex modul (1999)  – ... coming soon ...
+  - [Kronikak.hu ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/) – köszönet érte 🙂
