@@ -1,0 +1,18 @@
+## Shinaan Shaor  
+A Shinaan völgye - varázslórend
+
+Egy nador sámán, egy ardún- és egy zorawa varázsló hozta létre ezelőtt kb. 200 évvel. A sámán - **„Vándorszív” Etaal** - a Shiir Shaan Shaor nemzetség tagja volt. Keveset volt falujában, egyfolytában vándorolt, hajtotta a megismerés izgalma. Meglehetősen nagy hatalmú lett, a szellemvilág ismeretében bármelyik sámánnal felvehette volna a versenyt, de még ekkor sem telepedett le. Egy nap vészes hírt hozott neki egy Naooni: nemzetségének egy falujában valami elszabadult. Gyorsan odament, ahol kiderült, hogy egy kifordult fa gyökerei közt démoni ereklyét találtak. Sajnos későn érkezett, mert a falun már majdnem teljesen elhatalmasodott az őrület. A jósors ekkor vetette arra **Rebelys Noaxist** a kiszakadt ardún főpapot...
+
+Noaxis eredetileg főpap volt, de egyre jobban elhanyagolta hitét, s arcát a világi érdekek felé fordította. Ennek az lett az eredménye, hogy végül egy egyhetes szertartás végződött sikertelenül. Noaxis hitének gyengülése volt az oka. Az egyház kitagadta és elüldözte. Néhány túlzó egyházfő egyenesen sátánhívőnek bélyegezte, nem csoda, ha - nem hivatalosan - orgyilkosokat küldtek utána - példát statuálván. Menekült, de közben egy éjjel látomása volt, mely megrázta és felkavarta. Az isteni szentség jelent meg neki, s megtisztította lelkét. Küldetése lett: maga sem tudta mi, de kényszert érzett, hogy eljusson valahová.
+
+A helyet sem ismerte, de mindig tudta, merre kell mennie. Hitében megerősödve támadói már nem árthattak neki, és ő elhagyta az országot. Közel egy évig vándorolt gyalog, míg elért **Vutas-Votarba**. Addig az erdőben aludt, nélkülözött, megtanulta becsülni az életét. A késztetés ezután a **Nadír királyságba** vezette. Épp élelmet keresett, mikor betévedt az elátkozott nador faluba. A sámán segítségével végül sikerült elpusztítani a szörnyű ereklyét, s megmenteni a falu lakóinak lelkét.
+
+Noaxis érezte, nem szabad eleresztenie ezt az embert és így - mivel a sámánnak sem volt ellenére - ketten folytatták a vándorlást a királyságban. Megosztották egymással ismereteiket és hosszas teológiai vitákba bonyolódtak esténként a tűz mellett. Két évig barangoltak még, amikor egy nap a sors - vagy egy felsőbb akarat? - összehozta őket **So Mÿtírrel**, a vándor zorawa szerzetessel, aki a szellemvilágot jött tanulmányozni a királyságba.
+
+Mÿtír épp egy sziklaszellemet haragított magára sikeresen, mikor rátaláltak és kiráncigálták az omladékkövek közül. Néhány hét alatt felépült. Egy hatalmas hegy sziklájában levő barlangban ápolták - közel ahhoz a helyhez, ahol megtalálták. A szerzetes meglehetősen jó kedélyű volt, gyorsan teltek a napok. Noaxis üres idejében felfedezőútra indult a hatalmas barlang belsejébe. Egyik nap egy mellékjáratba tévedt és úgy negyedórás botorkálás után fáklyája egy óriási kiszélesedést világított meg, ahol egy barlangi forrás táplált egy kis tavat. A mana sűrűn kavargott körülötte. Másnap megmutatta társainak is és együtt úgy döntöttek, hogy letelepednek egy időre a sziklabarlangban és felfedezik az egész hegyet.
+
+Több év telt el. Feltérképezték a hegyet, kiismerték a tó mágikus fókuszát, megtalálták a harmóniát. Noaxis papírra vetette beszélgetéseik lényegét, filozófiai mondanivalóját. Néha be-bejártak nador falvakba gyógyítani, vagy élelmet beszerezni, ha szükséget szenvedtek. Hírük hamar elterjedt, s hamarosan a síkföldre is eljutott.
+
+...
+
+((BEFEJEZETLEN))

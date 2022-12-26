@@ -20,6 +20,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása
 - [Gonoszok rendje](rendek.ismertetok/Gonoszok.rendje.md) – nem az, amire gondolnál
 - [Hideas ház](rendek.ismertetok/Hideas.haz.md) – titkos rend Sÿstisben, furcsa titokkal
+- [Shinaan Shaor](rendek.ismertetok/Shinaan.Shaor.md) – varázslórend egy különös szövetségből
 
 ## Kalandmodulok
 
