@@ -19,6 +19,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Lunatassa](szellemleny/Lunatassa.md)
 - [Ragálydög](szellemleny/Ragalydog.md)
 - [Szánalom fantoma](szellemleny/Szanalom.fantoma.md)
+- [Tolman apó](szellemleny/Tolman.apo.md)
 
 ## Rendek, ismertetők
 - [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása

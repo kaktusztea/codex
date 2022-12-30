@@ -9,7 +9,7 @@ A másik dolog, amiért joggal félnek tőle az egyszerű halandók, az ez
 
 ---
 
-👻 2-6. osztályú szellemlény (Aura: 20-60%)\
+####  👻 2-6. osztályú szellemlény (Aura: 20-60%)
 Változó erősségű példányai vannak.
 
 Szellemképességek:

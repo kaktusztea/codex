@@ -11,7 +11,7 @@ Ilyenkor - a gyerek családjának tudomása nélkül - pártfogásába v
 
 ---
 
-👻 4. osztályú szellemlény (Aura: 40%)
+#### 👻 4. osztályú szellemlény (Aura: 40%)
 
 Meglehetősen erős szellemlény. Harmadik szemmel nem lehet rögtön megpillantani rejtőzködő természete miatt:\
 **8-as nehézségű Harmadik Szem képességpróba** dobandó.

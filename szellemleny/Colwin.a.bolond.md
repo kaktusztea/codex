@@ -24,7 +24,7 @@ Képes megszállni valakit és úgy kínozni. Lassan átveszi áldozata fölött
 
 ---
 
-👻 6. osztályú szellemlény (Aura:60%)
+#### 👻 6. osztályú szellemlény (Aura:60%)
 
 Szellemképességek:
 - Megszállás  

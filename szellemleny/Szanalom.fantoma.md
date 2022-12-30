@@ -49,8 +49,7 @@ Megjelenési formái változóak, lehetséges, hogy nincs is határa átv
 
 ---
 
-👻 3. osztályú szellemlény (Aura: 30%)\
-
+#### 👻 3. osztályú szellemlény (Aura: 30%)
 
 Szellemképességek:
 - Illúzióalak többféle megjelenési formában, melynek alkotóeleme fény

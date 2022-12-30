@@ -16,7 +16,7 @@ Jó esetben veszekedés is kerekedhet az ügyből – a nyikkancsok ezt rend
 
 ---
 
-👻 2. osztályú szellemlény (Aura: 20%)
+#### 👻 2. osztályú szellemlény (Aura: 20%)
 
 Szellemképességek:
 - Megszállás  
