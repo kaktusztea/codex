@@ -1,10 +1,10 @@
 ## Belső erős gonoszkodások – 1.rész
 
-*Valahol Sÿtis-ben egy bál esti forgatagában*
+*Valahol Sÿtisben egy bál esti forgatagában*
 
 Dormicius már közel egy órája figyelte a lányt, de ahogy észrevette, csak csendes utálattal teljes pillantásokat kapott vissza. Pedig annyira kívánta...
 
-– *„Nem lehet, hogy ne legyen az enyém!”* – gondolta a fiatal kardnemes. - *„Ezek a sytis-i bálok...! Csupa elérhetetlen szépség.”* - Az ital megkeseredett a szájában.
+– *„Nem lehet, hogy ne legyen az enyém!”* – gondolta a fiatal kardnemes. - *„Ezek a sytisi bálok...! Csupa elérhetetlen szépség.”* - Az ital megkeseredett a szájában.
 
 – *„Talán megpróbálhatnám elbájolni...”* – és csekélyke „hatalmára” gondolt, majd újfent elfintorodott. Ugyan! Ennyivel legfeljebb egy szúnyogot vehetne rá, hogy ne a vénáját, hanem a kézfejét csípje meg (azt is pusztán jóindulatból).
 

@@ -1,6 +1,6 @@
 ## Belső erős gonoszkodások – 2.rész
 
-Valahol Sÿtis-ben egy bál esti forgatagában
+Valahol Sÿtisben egy bál esti forgatagában
 
 Kilhors száját elhúzva tekintett szét az estély forgatagában. Nagyon unta magát. Azt a legutóbbi érdekes esetet leszámítva (mikor egy igen vonzó fiatal hölgy egy szemtelen csók után máris szobájába rángatta az őt megszégyenítő férfit) nem történt semmi.
 
