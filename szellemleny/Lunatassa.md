@@ -1,4 +1,4 @@
-**Neve**: Lunatassa  
+**Neve**: Lunatassa\
 **Valódi „neve”**: "Rémült anya sikolya, gyereket óvó kar, eszelősség, elvakultság"
 
 ## Története
@@ -11,16 +11,17 @@ Ilyenkor - a gyerek családjának tudomása nélkül - pártfogásába v
 
 ---
 
-👻 4. osztályú szellemlény (Aura:40%)
+👻 4. osztályú szellemlény (Aura: 40%)
 
-Meglehetősen erős szellemlény. Harmadik szemmel nem lehet rögtön megpillantani rejtőzködő természete miatt: **8-as nehézségű Harmadik Szem képességpróba** dobandó.
+Meglehetősen erős szellemlény. Harmadik szemmel nem lehet rögtön megpillantani rejtőzködő természete miatt:\
+**8-as nehézségű Harmadik Szem képességpróba** dobandó.
 
 A Harmadik szem által megjelenített kép egy elmosódott női alakot mutat. Rejtelmes, szürke arcán bánat tűnik fel, mikor hullámzó alakja épp kivehető.
 
 Szellemképességek:
-- Megszállás (pl. a bölcső. Itt nyeri vissza Aurapontjait földalakban)
-- Félelemkeltés (3-as hatásfok) (5 Aurapont/hatásfok)
-- Mozgatás /Éter/ (1Kg/Aurapont)
+- Megszállás (például a bölcső, ott nyeri vissza Aurapontjait földalakban)
+- Félelemkeltés (3-as hatásfok) (5 Aurapont / hatásfok)
+- Mozgatás (Éter) (1 Kg / Aurapont)
 - Légelementál forma felvétele
 
 Van, hogy egyes erőteljes megmozdulások teljesen felemésztik erejét, de mindenáron megóvja a gyereket. Például teljes Auráját feláldozza, hogy egy nagy lehulló kődarabot eltérítsen. Utána "eszméletét veszti".
