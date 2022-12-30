@@ -1,5 +1,4 @@
-**Neve**: Házi ördög (Nyikkancs, mint hétköznapi elnevezés)
-
+**Neve**: Házi ördög (Nyikkancs, mint hétköznapi elnevezés)\
 **Valódi „neve”**: "kárörvendő vihogás, nemtörődömség"
 
 Ez a szellemlény-fajta nem egyedi, rengeteg van belőlük (az abrÿssiak őszinte sajnálatára). Viszonylag közismert apró kis szellemlények. A legenda szerint egy őrült abÿrnossi nemes varázslójának elszabadult varázslatából jöttek létre, mikor a varázstudó láthatatlanná akarta tenni ura egész kastélyát (örökre). A hagyomány szerint segítségére volt Woland fókusza, mely félelmetesen nagy hatalmat nyújt, de különös elvárásai és furcsa hatása van használójának elméjére.
