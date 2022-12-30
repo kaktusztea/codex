@@ -27,6 +27,13 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Hideas ház](rendek.ismertetok/Hideas.haz.md) – titkos rend Sÿstisben, furcsa titokkal
 - [Shinaan Shaor](rendek.ismertetok/Shinaan.Shaor.md) – varázslórend egy különös szövetségből
 
+## Gradÿss ház
+ ... coming soon ...
+- História
+- Családfa
+- Szolgálók
+- Kalandok
+
 ## Kalandmodulok
 
 - Vissza – Codex modul (1999)  – ... coming soon ...
