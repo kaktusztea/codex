@@ -1,4 +1,4 @@
-**Neve**: A szánalom fantoma\
+**Neve**: Szánalom fantoma\
 **Valódi neve**: "Gonosz ártatlanság, sátáni rosszindulat, alantas szánalomkeltés, apró taszítás rossz irányba egy felfokozott pillanatban"
 
 A szellemlény már jó 200 éve aktív Abrÿsson, pontosabban Abÿrnossban - eddig csak ott látták. Az alábbiakat valószínűleg – rajta kívül – nem nagyon tudja senki.
