@@ -17,6 +17,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Colwin a bolond](szellemleny/Colwin.a.bolond.md)
 - [Házi ördög](szellemleny/Nyikkancs.md) (Nyikkancs)
 - [Lunatassa](szellemleny/Lunatassa.md)
+- [Ragálydög](szellemleny/Ragalydog.md)
 
 ## Rendek, ismertetők
 - [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása
