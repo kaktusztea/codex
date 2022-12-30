@@ -18,6 +18,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 - [Házi ördög](szellemleny/Nyikkancs.md) (Nyikkancs)
 - [Lunatassa](szellemleny/Lunatassa.md)
 - [Ragálydög](szellemleny/Ragalydog.md)
+- [Szánalom fantoma](szellemleny/Szanalom.fantoma.md)
 
 ## Rendek, ismertetők
 - [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása
