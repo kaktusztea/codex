@@ -29,10 +29,10 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 
 ## Gradÿss ház
  ... coming soon ...
-- História
-- Családfa
-- Szolgálók
-- Kalandok
+- [História](gradyss/historia.md)
+- [Családfa](gradyss/csaladfa.md)
+- [Szolgálók](gradyss/szolgalok.md)
+- [Kalandok](gradyss/kalandok.md)
 
 ## Kalandmodulok
 
