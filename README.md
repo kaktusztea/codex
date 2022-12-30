@@ -15,6 +15,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 ## Szellemlények
 
 - [Colwin a bolond](szellemleny/Colwin.a.bolond.md)
+- [Házi ördög](szellemleny/Nyikkancs.md) (Nyikkancs)
 - [Lunatassa](szellemleny/Lunatassa.md)
 
 ## Rendek, ismertetők
