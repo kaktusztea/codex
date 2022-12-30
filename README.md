@@ -15,6 +15,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas
 ## Szellemlények
 
 - [Colwin a bolond](szellemleny/Colwin.a.bolond.md)
+- [Lunatassa](szellemleny/Lunatassa.md)
 
 ## Rendek, ismertetők
 - [Északi rokonság](rendek.ismertetok/Eszaki.rokonsag.md)  – három nador karakter bemutatása
