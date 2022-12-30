@@ -37,8 +37,7 @@ Szellemképességek:
 
 ---
 
-Slissan Destoros: Abrÿss "nyughatatlan" teremtményei (III. kötet)
-
-A Gradÿss ház titkos könyvtárából
+Slissan Destoros: Abrÿss "nyughatatlan" teremtményei (III. kötet)\
+⚜️ A Gradÿss ház titkos könyvtárából ⚜️
 
 (Ailtas)

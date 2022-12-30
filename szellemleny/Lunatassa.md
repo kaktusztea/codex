@@ -28,8 +28,7 @@ Van, hogy egyes erőteljes megmozdulások teljesen felemésztik erejét, de 
 
 ---
 
-Slissan Destoros: Abrÿss "nyughatatlan" teremtményei (III. kötet)
-
-A Gradÿss ház titkos könyvtárából
+Slissan Destoros: Abrÿss "nyughatatlan" teremtményei (III. kötet)\
+⚜️ A Gradÿss ház titkos könyvtárából ⚜️
 
 (Ailtas)
