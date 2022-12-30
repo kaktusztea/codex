@@ -1,4 +1,4 @@
-**Neve**: Colwin, a bolond  
+**Neve**: Colwin, a bolond\
 **Valódi "neve"**: "Gonosz, intelligens mosoly a bágyadt holdfényben, eszelős kacaj, kínlódást szemlélő perverz öröm"
 
 ## Története
