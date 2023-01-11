@@ -1,6 +1,6 @@
 # Codex
 
-Anyagaim Codex szerepjátékhoz - Ailtas
+Anyagaim Codex szerepjátékhoz - Ailtas ([CC](./LICENSE))
 
 ## Novellák
 
