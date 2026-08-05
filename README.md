@@ -5,7 +5,7 @@ Anyagaim Codex szerepjátékhoz - Ailtas ([CC](./LICENSE))
 ## Kalandmodulok
 
 - Vissza – Codex modul (1999)
-  - PDF: coming soon ...
+  - [PDF](https://kronikak.hu/?attachment_id=2862)
   - [Kronikak.hu ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/)
 
 ## Novellák
