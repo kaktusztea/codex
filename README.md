@@ -2,6 +2,12 @@
 
 Anyagaim Codex szerepjátékhoz - Ailtas ([CC](./LICENSE))
 
+## Kalandmodulok
+
+- Vissza – Codex modul (1999)
+  - PDF: coming soon ...
+  - [Kronikak.hu ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/)
+
 ## Novellák
 
 - [A jövő](novella/A.jovo.es.Lelekmagia.md)
@@ -33,8 +39,3 @@ Anyagaim Codex szerepjátékhoz - Ailtas ([CC](./LICENSE))
 - [Családfa](gradyss/csaladfa.md)
 - [Szolgálók](gradyss/szolgalok.md)
 - [Kalandok](gradyss/kalandok.md)
-
-## Kalandmodulok
-
-- Vissza – Codex modul (1999)  – ... coming soon ...
-  - [Kronikak.hu kaland-ajánlója](https://kronikak.hu/2013/02/23/ailtas-vissza-codex-kalandmodul/) – köszönet érte 🙂
